@@ -1,1 +1,1 @@
-# Daria Vorobiova - a famous Ukrainian photographer and bloger
+# Daria Vorobiova - a famous Ukrainian photographer and blogger
